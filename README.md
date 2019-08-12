@@ -225,6 +225,11 @@ he，全文1w+一发完，这篇写得也很棒啊，安利ww
 27.[[藕饼]判相思 甜饼HE/电影后续向](http://men10621.lofter.com/post/1fa5e4f1_1c65853c2) 作者：[閪門](http://men10621.lofter.com/)
 海底天牢魔丸灵珠私相会订终身
 
+28.[【藕饼】 一朵莲](http://cytheriaxiaoliuye.lofter.com/post/1fce3b08_1c65f85ea) 作者：[请叫我小六爷](http://cytheriaxiaoliuye.lofter.com/)
+正剧向 虐，1w+/有辆学步车/续电影
+
+<br/>
+
 顺便po一个超萌小条漫XD，也是电影后续向ww
 【图】[接电影的时间线后，双向暗恋](http://lileiyuhanmeimei.lofter.com/post/309c3595_1c63ffc2e) 作者：[怎么还没睡](http://lileiyuhanmeimei.lofter.com/)
 电影后续的图好多，等整理完文后再整理啦
