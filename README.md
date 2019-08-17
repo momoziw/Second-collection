@@ -228,6 +228,9 @@ he，全文1w+一发完，这篇写得也很棒啊，安利ww
 28.[【藕饼】 一朵莲](http://cytheriaxiaoliuye.lofter.com/post/1fce3b08_1c65f85ea) 作者：[请叫我小六爷](http://cytheriaxiaoliuye.lofter.com/)
 正剧向 虐，1w+/有辆学步车/续电影
 
+29.[【藕饼】永劫·家宴（上）](http://weijiu847.lofter.com/post/1fc99b3d_1c655b748) 作者：[折耳](http://weijiu847.lofter.com/)
+有上中下已完结，下是趟豪🚗，很暖很戳人的一篇
+
 <br/>
 
 顺便po一个超萌小条漫XD，也是电影后续向ww
