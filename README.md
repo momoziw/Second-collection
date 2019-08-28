@@ -222,7 +222,7 @@ he，全文1w+一发完，这篇写得也很棒啊，安利ww
 26.[【藕饼】混元（电影续写/短篇/HE）](http://bangshuzonggong.lofter.com/post/3cb148_1c6579c13) 作者：[舟泽](http://bangshuzonggong.lofter.com/)
 这篇热度还不到100但是写的不错，推荐一下
 
-27.[[藕饼]判相思 甜饼HE/电影后续向](http://men10621.lofter.com/post/1fa5e4f1_1c65853c2) 作者：[閪門](http://men10621.lofter.com/)
+27.[[藕饼]判相思](http://evernow.lofter.com/post/1fa5e4f1_1c65d9b29)[-一发完](http://evernow.lofter.com/post/1fa5e4f1_1c65d9b29)[ 甜饼HE/电影后续向](http://evernow.lofter.com/post/1fa5e4f1_1c65d9b29) 作者：[时雨烟浔](http://evernow.lofter.com/)
 海底天牢魔丸灵珠私相会订终身
 
 28.[【藕饼】 一朵莲](http://cytheriaxiaoliuye.lofter.com/post/1fce3b08_1c65f85ea) 作者：[请叫我小六爷](http://cytheriaxiaoliuye.lofter.com/)
